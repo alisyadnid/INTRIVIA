@@ -10,7 +10,7 @@ Sejauh ini cukup senang bisa ikut rangkaian Intrivia karena jadi punya gambaran 
 
 Semoga rangkaian Intrivia ke depannya bisa lebih seru dan bisa jadi pengalaman yang berkesan buat mahasiswa baru. Terima kasih kakak-kakak panitia yang udah meluangkan waktu dan tenaga buat menyiapkan semua rangkaiannya! 
 
-## Kesan Pesan Cluster [15] Sejauh Ini 
+## Kesan Pesan Cluster 15 Sejauh Ini 
 Senang bisa ketemu dan jadi bagian dari Cluster 15! Dari yang awalnya belum kenal satu sama lain, akhirnya bisa punya pengalaman dan cerita bareng selama rangkaian kegiatan. Semoga setelah ini kita tidak hanya menjadi teman satu cluster, tapi juga bisa terus kenal dan saling support selama kuliah.
 
 Semoga ke depannya kita bisa sama-sama berkembang, saling menyemangati di tengah sibuknya dunia perkuliahan, dan punya banyak cerita seru.
